@@ -1,0 +1,1 @@
+Technics 1200/1210 Rca Clamp + Spacer by CastroSATT on Thingiverse: https://www.thingiverse.com/thing:4670106
